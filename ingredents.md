@@ -1,0 +1,1 @@
+Fresh strawberries, a jar full of milk, drinking water, sugar, gelatin powder, jelly moulds;
